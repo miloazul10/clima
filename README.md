@@ -1,1 +1,1 @@
-# Removi el proyecto porque me dio problemas, lo volvere a subir.
+# Lo estoy terminando profe, ya lo subo.
